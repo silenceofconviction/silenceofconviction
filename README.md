@@ -1,5 +1,6 @@
-## Hi there 👋
-
+<p align="center">
+  <img width="460" height="300" src="[![ezgif-24c38c545e085e](https://github.com/user-attachments/assets/f4558bf0-0790-4766-93a1-769ee87e4c50)](https://cdn.discordapp.com/attachments/1220804214737866842/1419097037256921319/ezgif-24c38c545e085e.gif?ex=68d0849b&is=68cf331b&hm=51ebe33e774df2d9b50793a8f84f1c22fbb5efe1c87b92df7c49d0c8bdf87a08)">
+</p>
 <!--
 **silenceofconviction/silenceofconviction** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
