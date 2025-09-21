@@ -6,4 +6,4 @@ hi im nihilus, you can also call me sorcus or danny
 
 current interests; roblox admins & hackers, phighting, cookie run kingdom, lost media, args
 
-homophobes, transphobes, racists, proshippers dni u will be blocked on site
+homophobes, transphobes, racists, proshippers dni u will be blocked on sight
