@@ -1,9 +1,7 @@
-too lazy to make this look decent atm
+call me nihilus, malthael or azrael whatever you prefer
+it/its
 
-hi im nihilus, you can also call me sorcus or danny
+current interests; roblox admins & hackers, phighting, args + lost media, star wars, overwatch, pokemon, etc
+note i am a very socially awkward person, i dont go out of my way to talk to other people often it's nothing personal i just get awkward
 
-18
-
-current interests; roblox admins & hackers, phighting, cookie run kingdom, lost media, args
-
-homophobes, transphobes, racists, proshippers dni u will be blocked on sight
+homophobes, transphobes, racists, proshippers dni u will be blocked on sight. i block freely
